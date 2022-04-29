@@ -1,2 +1,2 @@
 # github-practice
-today is friday, april 29th
+today is friday, april 28th
